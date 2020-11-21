@@ -5,3 +5,5 @@ Diyarbakır <br>
 Fırat Üniversitesi Yazılım Muhendisliği 3. sınıf öğrencisiyim<br>
 hsyndass@gmail.com <br>
 Müzik dinlemek en büyük hobim, saatlerce durmadan dinleyebilirim. <br>
+Fotoğraf çekmeyi, editlemeyi severim. <br>
+
